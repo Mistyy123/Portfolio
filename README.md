@@ -1,2 +1,2 @@
 # Portfolio
-Get to know me better!
+Get to know my work and my strengths much better.
